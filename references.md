@@ -1,3 +1,3 @@
-# References
-
-* octocat 1 😈
+Mis referencias profesionales:
+- Profesor: Dr. García
+- Mentor: Ana López
